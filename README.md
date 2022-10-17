@@ -1,4 +1,4 @@
-![logo](https://github.com/Paaina/Paaina/blob/main/SHIKHA%20KUSHWAH.png)
+![logo](https://github.com/Paaina/Paaina/blob/main/Inspiration%20does%20exist%2C%20but%20it%20must%20find%20you%20working..gif)
 
 
 <h1 align="center">Hi 👋, I'm Shikha Kushwah</h1>
